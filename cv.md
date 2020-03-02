@@ -7,6 +7,8 @@
 
 4. Skils: Java
 
+6. Experience 
+
 7. Education: BSUIR (2014-2018)
 
 8. English level: B1
